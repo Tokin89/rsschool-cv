@@ -1,1 +1,1 @@
-https://Tokin89.github.io/rsschool-cv/cv
+https://Tokin89.github.io/rsschool-cv/
